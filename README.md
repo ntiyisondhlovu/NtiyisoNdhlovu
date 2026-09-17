@@ -34,4 +34,4 @@ Customer Journey Mapping	Digital banking optimization
 Connect With Me
 LinkedIn: [https://www.linkedin.com/in/ntiyiso-ndhlovu-840048129/]
 Email: wayneintruth@gmail.com
-⭐ Always learning and improving. ``
+⭐ Always learning and improving. 
